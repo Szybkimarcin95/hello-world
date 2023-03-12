@@ -1,2 +1,5 @@
 # hello-world
-taki tam teścik
+
+Welcome in jungle, skurwysynys
+Kurwiny zapiętę jak jebane cytryny
+Wypite, dzwonimy i kurwa lecimy
